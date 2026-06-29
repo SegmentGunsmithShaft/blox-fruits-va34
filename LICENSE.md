@@ -1,4 +1,4 @@
-
+vip Script for blox fruits is the best blox fruits Script, featuring instant win and auto-heal. Safe and powerful for all your needs.
 
 
 
